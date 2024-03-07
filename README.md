@@ -1,1 +1,0 @@
-# how-mauch-trivia-do-you-know
